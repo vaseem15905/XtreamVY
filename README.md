@@ -1,2 +1,2 @@
-  Just a beginnner,
+  Just a beginner,
   Advices are always Welcomed!
